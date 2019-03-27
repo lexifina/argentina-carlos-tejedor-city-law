@@ -1,0 +1,5 @@
+Ordenanza Nº2567/18
+Ordenanza Nº 2567/18
+Carlos Tejedor, 12/12/2018
+ORDENANZA N° 2567/2018
+ORDENANZA
