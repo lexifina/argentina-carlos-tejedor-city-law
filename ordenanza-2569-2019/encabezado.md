@@ -1,0 +1,14 @@
+Ordenanza Nº2569/19
+Ordenanza Nº 2569/19
+Carlos Tejedor, 01/02/2019
+VISTO: la realidad que atraviesan los productores agropecuarios del distrito como consecuencia de las inclemencias climáticas; y
+CONSIDERANDO:
+Que se deben realizar las adecuaciones administrativas necesarias para lograr un mejor y más eficiente sistema de medición que no perjudique a los contribuyentes afectados y/o al Municipio;
+Que se requiere validar los descuentos a realizarse en la tasa correspondiente como resultado del análisis de afectación de inmuebles por encuadrar como zona improductiva;
+Que anualmente deben ser actualizados los porcentajes de afectación de los predios rurales del Distrito;
+Que a tal fin se toma como herramienta de medición el Sistema de Información Geográfico (GIS);
+Que atento lo expuesto el Departamento Ejecutivo propicia la sanción de la presente Ordenanza;
+Por ello,
+EL HONORABLE CONCEJO DELIBERANTE DE CARLOS TEJEDOR, EN USO DE SUS ATRIBUCIONES ACUERDA Y SANCIONA CON FUERZA DE:
+ORDENANZA
+ORDENANZA
