@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Las actuaciones administrativas tendientes a obtener la consolidación del dominio inmobiliario con fines de solidaridad social, conforme lo normado por la Ley 11622, se ajustarán al procedimiento y condiciones establecidas en la presente reglamentación.

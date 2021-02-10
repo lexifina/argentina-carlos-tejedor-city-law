@@ -1,0 +1,1 @@
+ARTÍCULO 5.- La escritura traslativa de dominio, bajo pena de nulidad, consignará que el inmueble se integra al dominio privado municipal con destino a fines de solidaridad social y bajo el régimen de la Ley 11622. El Registro de la Propiedad Inmueble deberá incorporar dicha aclaración en la pertinente anotación dominial.

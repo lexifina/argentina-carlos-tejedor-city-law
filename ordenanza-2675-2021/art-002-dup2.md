@@ -1,0 +1,1 @@
+ARTÍCULO 2°: Con el objeto propuesto en el artículo anterior, condónense las deudas que por impuesto inmobiliario u otros tributos provinciales registren los inmuebles que los particulares transfieran a los Municipios, a título gratuito; siempre y cuando estos últimos condonen las deudas que por tasas de servicios tengan los referidos inmuebles.

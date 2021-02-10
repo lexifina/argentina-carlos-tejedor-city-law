@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Recepcionado el certificado de condonación de deudas por gravámenes provinciales, la municipalidad respectiva gestionará el otorgamiento de la escritura traslativa de dominio en la forma y condiciones establecidas por el artículo 3º de la Ley 11622.

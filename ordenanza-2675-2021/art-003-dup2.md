@@ -1,0 +1,1 @@
+ARTÍCULO 3°: Las escrituras traslativas de dominio se otorgarán ante la Escribanía General de Gobierno o a través del Convenio con el Colegio de Escribanos de la Provincia de Buenos Aires, previsto en la Ley 10.295 modificada por la Ley 10.771, sin cargo y exceptuada del pago de impuesto de sellos.
