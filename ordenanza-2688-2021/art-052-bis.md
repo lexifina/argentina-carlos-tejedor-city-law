@@ -1,0 +1,1 @@
+Artículo 52° bis: El Empleado Municipal gozará de una licencia por paternidad con goce íntegro de haberes por el término de quince días corridos, la que se acreditará mediante la presentación del certificado de nacimiento.
