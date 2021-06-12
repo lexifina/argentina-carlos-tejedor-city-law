@@ -1,0 +1,1 @@
+Articulo N° 3°: Establézcase a través de las áreas competentes del Departamento Ejecutivo campañas de difusión sobre el nuevo sentido de circulación de las calles con el objeto de informar debidamente a la población.
