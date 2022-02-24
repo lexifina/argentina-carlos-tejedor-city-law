@@ -1,0 +1,5 @@
+Ordenanza Nº2758/21
+Ordenanza Nº 2758/21
+Carlos Tejedor, 29/12/2021
+ORDENANZA IMPOSITIVA N° 2758
+ORDENANZA
