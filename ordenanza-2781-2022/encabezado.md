@@ -1,0 +1,9 @@
+Ordenanza Nº2781/22
+Ordenanza Nº 2781/22
+Carlos Tejedor, 17/05/2022
+FUNDAMENTOS:
+VISTO Y CONSIDERANDO:
+El CONVENIO DE SERVIDUMBRE ADMINISTRATIVA DE ELECTRODUCTO, a celebrarse entre la Empresa de Transporte de Energía Eléctrica por Distribución Troncal de la Provincia de Buenos Aires TRANSBA S.A. y la MUNICIPALIDAD DE CARLOS TEJEDOR, que forma parte del presente;
+Es por ello que;
+EL HONORABLE CONCEJO DELIBERANTE DE CARLOS TEJEDOR, EN USO DE SUS ATRIBUCIONES ACUERDA Y SANCIONA CON FUERZA DE:
+ORDENANZA
