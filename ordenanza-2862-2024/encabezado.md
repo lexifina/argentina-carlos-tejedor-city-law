@@ -1,0 +1,11 @@
+Ordenanza Nº2862/23
+Ordenanza Nº 2862/23
+Carlos Tejedor, 27/12/2023
+ORDENANZA
+OR D E N A N Z A FISCAL N°2862/2024
+MUNICIPALIDAD DE CARLOS TEJEDOR
+PROYECTO DE ORDENANZA FISCAL
+PARTE GENERAL
+TITULO PRIMERO
+De las Obligaciones Fiscales
+Disposiciones que rigen las obligaciones.
