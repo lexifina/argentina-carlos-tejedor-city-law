@@ -1,0 +1,16 @@
+Ordenanza Nº2905/24
+Ordenanza Nº 2905/24
+Carlos Tejedor, 20/08/2024
+VISTO:
+La Ordenanza Nº 1617/98, las Resoluciones del Ministerio de INFRAESTRUCTURA Y SERVICIOS PÚBLICOS DE LA PROVINCIA DE BUENOS AIRES, RESO-2023-454-GDEBA-MIYSPGP de fecha 29 de marzo de 2023, RESO-2023-822-GDEBA-MIYSPGP de fecha 9 de junio de 2023, RESO-2023-823-GDEBA-MIYSPGP de fecha 9 de junio de 2023, RESO-2023-997-GDEBA-MIYSPGP de fecha 12 de julio de 2023, RESO-2024-4-GDEBA-MIYSPGP de fecha 9 de enero de 2024, y
+CONSIDERANDO:
+Que, mediante Ordenanza 1617/98 de fecha 20 de marzo del año 1998 el Honorable Concejo Deliberante, autorizó al Departamento Ejecutivo Municipal a suscribir los Contratos de Concesión de Distribución de Energía Eléctrica en el Partido de Carlos Tejedor, con la Cooperativa Limitada de Provisión de Electricidad, de Obras y Servicios Públicos, Crédito, Vivienda y consumo de Carlos Tejedor, con la Cooperativa Eléctrica de Timote Limitada, con la Cooperativa Eléctrica de Tres Algarrobos Limitada, con la Cooperativa Limitada de Consumo Popular de Electricidad y Servicios y Servicios Anexos de Curarú y con la Cooperativa de Electricidad de Colonia Seré, en un todo de acuerdo a lo establecido por la Ley Provincial N° 11.769/97 y su Decreto Reglamentario N° 1.208/97.
+Que en consecuencia el Ejecutivo Municipal procedió a celebrar dichos contratos con las cinco Cooperativas del Distrito.
+Que los contratos de concesión municipal suscriptos en el marco de lo establecido por la Ley N° 11.769, por el Decreto Nº 1208/97 (derogado por Decreto N° 2479/04) y por el Decreto N° 3008/01, establecieron un plazo de concesión del servicio público de veinticinco años (25) contados a partir de la entrada en vigencia de los contratos, a partir del año 1998, considerando en cada caso la fecha de suscripción de cada uno de ellos;
+Que dichos contratos, conforme el modelo aprobado por el anexo del Decreto Nº 1208/97, prevén la posibilidad de sucesivas prórrogas por el plazo de treinta (30) años cada una, determinándose que para ello se requiere la renovación de las licencias técnicas oportunamente conferidas, en pos de resguardar adecuadamente su existencia y la normal continuidad de dichas entidades cooperativas, así como revalidar las condiciones que lo habilitan a prestar un servicio público;
+Que todas las cooperativas hicieron uso de la opción de prorroga en tiempo y forma;
+Que a su vez, las mismas gestionaron la renovación de las licencias técnicas oportunamente otorgada por Resolución N° 112/98 de la entonces Autoridad de Aplicación (Ente Provincial Regulador Energético conf. Decreto N° 1208/97, las que fueron concedidas favorablemente conforme surgen de las Resoluciones antes citadas, para operar el servicio público de distribución de energía eléctrica, en el área de concesión determinada por el contrato de concesión municipal, determinando a su vez, que la licencia técnica habilita a la Cooperativa a tramitar la prórroga del contrato de concesión municipal, en tanto el poder concedente municipal así lo determine;
+Que, por todo lo expuesto, este Ejecutivo Municipal propicia la sanción
+POR ELLO:
+EL HONORABLE CONCEJO DELIBERANTE DE CARLOS TEJEDOR, EN USO DE SUS ATRIBUCIONES ACUERDA Y SANCIONA CON FUERZA DE:
+ORDENANZA
