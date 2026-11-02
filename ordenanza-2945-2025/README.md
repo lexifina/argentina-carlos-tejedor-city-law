@@ -1,0 +1,11 @@
+# Ordenanza 2945/2025: Convalídese el Decreto N°1349/2025 donde consta la nómina de ciudadanos postulantes a Mayores Contribuyentes inscriptos en el registro abierto al efecto conforme el Art. 94 Inc. 3 y 5 de la Ley Orgánica de las Municipali
+
+Ordenanza 2945/2025 · 1 versions, from 2025-06-21 (latest in force: 2025-06-21) · <https://sibom.slyt.gba.gob.ar/bulletins/12968/contents/2235528>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Artículo 4 | [art-004.md](art-004.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
